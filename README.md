@@ -1,2 +1,2 @@
 # CYD-W328R-code-by-orca-.bin-
-lust my hobies not serouis
+Just my hobies not serouis maybe it look not good btw lol.
